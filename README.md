@@ -1,1 +1,1 @@
-Homweork 1-12 is in te branches
+Homweork 1-12 is in the branches
